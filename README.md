@@ -1,7 +1,7 @@
 # **Praveen JM**  
 📍 Chennai, Tamil Nadu | 📞 +91 9840179543  
 ✉️ [praveenanirudh226@gmail.com](mailto:praveenanirudh226@gmail.com)  
-🔗 [LinkedIn](https://linkedin.com/in/PraveenJM) | 🔗 [GitHub](https://github.com/PraveenJM)
+🔗 [LinkedIn](https://www.linkedin.com/in/praveen-j-m-83583b265/) | 🔗 [GitHub](https://github.com/Praveen-J-M)
 
 ---
 
